@@ -1,6 +1,5 @@
 Telegram Channel: https://t.me/EvilWareHouse Telegram Owner: https://t.me/HackerwareHouse
 
-<img width="405" alt="menu" src="https://user-images.githubusercontent.com/125498545/219135740-8cc22900-d48b-4bfe-aa00-189a678bf453.png">
 <img width="907" alt="Screenshot 2023-02-15 134214" src="https://user-images.githubusercontent.com/125498545/219135775-64ff833c-d811-4850-909a-ee42d4b7394d.png">
 Features
 𝗙𝗶𝗹𝗲 𝗠𝗮𝗻𝗮𝗴𝗲𝗿
